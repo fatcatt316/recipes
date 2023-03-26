@@ -1,4 +1,4 @@
-v1.1.0
+v1.0.0
 
 2/3 cup pumpkin seeds
 1/4 cup chia seeds
@@ -13,7 +13,7 @@ v1.1.0
 mix together, DEEZ ball shapes, put in fridge
 
 --------------------------
-v1.0.0
+v1.1.0
 
 1/2 cup pumpkin seeds (maybe more next time)
 1/2 cup seeds (chia seeds, hemp seeds, flaxseed)
