@@ -1,0 +1,2 @@
+Here are the ingredients for the Mexican pizza (photo attached) Joe:
+Refried beans instead of tomato sauce as the base of the pizza, then mozzarella, bacon (the pic has ham because it’s cheaper), slices of red onion, jalapeño too and chorizo, I think the last 3 ingredients make the real diff
