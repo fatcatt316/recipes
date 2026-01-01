@@ -19,7 +19,7 @@ About 22 cookies
 * 1 large egg yolk
 * 1 teaspoon vanilla extract
 * ½ cup molasses (about 6 ounces), light or dark
-* 2 tablespoons instant coffee (might be too much)
+* 2 tablespoons instant coffee (leave out unless you want strong coffee flavor!)
 
 ## Directions:
 Measure the molasses in a liquid measuring cup. If you find that the dough sticks to your palms as you shape the balls, moisten your hands occasionally in a bowl filled with cold water and shake off the excess. Bake the cookies one sheet at a time. If baked two sheets at a time, the cookies started on the bottom rack won’t develop the attractive cracks. The cookies should look slightly raw and underbaked when removed from the oven.
